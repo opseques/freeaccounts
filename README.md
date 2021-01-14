@@ -1,2 +1,1 @@
-# freeaccounts
-free accounts
+https://fimody.com/free-tinder-accounts/
